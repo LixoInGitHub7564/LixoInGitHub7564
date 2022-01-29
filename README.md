@@ -10,4 +10,4 @@ Mon interet:Rien.
 
  --------------------------------------------------------------------------------------------------------------------------------------
 
-Ainsi , je  crée des virus. Un GitHub + Page Youtube sera bientôt disponible  a votre proximi.
+Ainsi , je  crée des virus. Un GitHub + Page Youtube sera bientôt disponible  a votre proximité.
